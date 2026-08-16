@@ -1,0 +1,1 @@
+Common Asset Point
